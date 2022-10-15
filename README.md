@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **aakajave@gmail.com**
 
-- ⚡ Fun fact **I think I am funny ,and that makes me funnier :)**
+- ⚡ Fun fact **I think I am funny; that makes me funnier :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
